@@ -1,2 +1,2 @@
-# Mana DMI e-klāde
+# Mana DMI e-klade
 
